@@ -7,6 +7,8 @@ El dia del seu onzè aniversari, en Harry Potter, un nen orfe que viu una vida m
 - Fantasia
 - Aventures
 - Cinema familiar
+- Drama juvenil
+- Cinema d'iniciació (Coming-of-age)
 
 ## Reparto
 - __Dirección__: 
